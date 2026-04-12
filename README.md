@@ -13,4 +13,5 @@
 
 <div align="center">
 i dont mind unobtrusive communication.
+  she/her
 </div>
