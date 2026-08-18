@@ -13,7 +13,7 @@
 
 <div align="center">
 i dont mind unobtrusive communication.
-@gesetzder тг
+@gesetzder tg
  
   she/her
 </div>
