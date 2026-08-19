@@ -14,7 +14,9 @@
 <div align="center">
 i dont mind unobtrusive communication.
   C+H — подсаживайтесь свободно
-@gesetzder tg
+
+  
+
  
-  she/her
+  @gesetzder tg | she/her
 </div>
